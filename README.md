@@ -8,6 +8,7 @@
 - 📫 How to reach me **harshitfr25@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
+*Email*: (harshitfr25@gmail.com)
 <p align="left">
 </p>
 
